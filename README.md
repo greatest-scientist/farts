@@ -11,8 +11,8 @@ KSHSNOSISHSNSBSVGWJAIA
 
 msjsbak# farts
 
-<img width="498" height="345" alt="Image" src="https://github.com/user-attachments/assets/d6ea6fc3-8ed2-41ad-b31d-7358c20664fa" />
-https://github.com/user-attachments/assets/d6ea6fc3-8ed2-41ad-b31d-7358c20664fa
+<img width="700" alt="Image" src="https://github.com/user-attachments/assets/d6ea6fc3-8ed2-41ad-b31d-7358c20664fa" />
+
 
 <img width="498" height="345" alt="Image" src="https://github.com/user-attachments/assets/d6ea6fc3-8ed2-41ad-b31d-7358c20664fa" />
 
